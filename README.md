@@ -9,7 +9,7 @@
 ## This is the simp lord clown ex faze pro wannbe, CLOWN DOUG
 
 Doug claimed he had a friend that was smart enough to Hack one of the bigger cheat engines and got access to a list of dirty rat cheating streamers 
-After he claimed to do all of this with a BAt file I knew he was also a dirty rat fraud as well. 
+After he claimed to do all of this with a BAT file I knew he was also a dirty rat fraud as well. 
 
 How would I know? Let me introduce myself. 
 
